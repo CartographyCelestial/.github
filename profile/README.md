@@ -249,3 +249,4 @@ End: Contradictions dissolve into different expressions of universal
 human search for meaning
 
 ═══════════════════════════════════════════════════════════════
+Full series: https://www.youtube.com/playlist?list=PLmkktcV0YjXpOqTMTyy0-lqrRSurnahQ_
